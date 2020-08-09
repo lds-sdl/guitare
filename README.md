@@ -5,3 +5,6 @@
 
 ## Police :
 - [Every Breath you Take](https://www.youtube.com/watch?v=H-4yodHCvu0)
+
+## Théorie
+- [Pentatonic scale i caged system] (https://emeryguitarchops.wordpress.com/c-a-g-e-d-and-diagonal-pentatonic-scales/)
