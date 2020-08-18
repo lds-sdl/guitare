@@ -9,3 +9,4 @@
 
 ## Théorie
 - [Pentatonic scale in caged system](https://emeryguitarchops.wordpress.com/c-a-g-e-d-and-diagonal-pentatonic-scales/)
+- [pentatonic scales](https://www.guitarlessonworld.com/lessons/pentatonic-scales/)
