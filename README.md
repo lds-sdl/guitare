@@ -19,5 +19,5 @@
 ## You Tube
 
 - Pilgrim guitar
-  1: [Acoustic Guitar](https://amzn.to/2P56qeM)
-  2: [Electric Guitar](https://amzn.to/2TxY97r)
+  - [Acoustic Guitar](https://amzn.to/2P56qeM)
+  - [Electric Guitar](https://amzn.to/2TxY97r)
