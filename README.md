@@ -1,8 +1,8 @@
 # links
 
 ## Creedence Clearwater Revival
-- [Cotton Fields](https://www.youtube.com/watch?v=C4zPEmRufMU)
-
+- [Cotton Fields original](https://www.youtube.com/watch?v=C4zPEmRufMU)
+- [Cotton Fields howto](https://www.youtube.com/watch?v=sK13U5u59f0)
 ## Jimi Hendrix
 
 - [Hey Joe](https://www.youtube.com/watch?v=bxA3x8LeIX8)
