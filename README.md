@@ -5,7 +5,8 @@
 - [Cotton Fields howto](https://www.youtube.com/watch?v=sK13U5u59f0)
 ## Jimi Hendrix
 
-- [Hey Joe](https://www.youtube.com/watch?v=bxA3x8LeIX8)
+- [Hey Joe Progress chords](https://www.youtube.com/watch?v=bxA3x8LeIX8)
+- [Hey Joe Solo](https://www.youtube.com/watch?v=X272diBNdi4)
 - [Chords progression](https://www.youtube.com/watch?v=EBml4Vbt0lg)
 
 ## Blues
