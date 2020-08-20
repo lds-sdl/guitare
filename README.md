@@ -8,6 +8,8 @@
 - [Hey Joe Progress chords](https://www.youtube.com/watch?v=bxA3x8LeIX8)
 - [Hey Joe Solo](https://www.youtube.com/watch?v=X272diBNdi4)
 - [Chords progression](https://www.youtube.com/watch?v=EBml4Vbt0lg)
+- [Hendrix Chord Trick Lick lesson](https://www.youtube.com/watch?v=z9o-xUMrs3g)
+- [So Who Wants A Double Stop Guitar Lesson](https://www.youtube.com/watch?v=mQYnnPEJqkc)
 
 ## Blues
 - [3 essential BLUES shuffles! | from EASY to HARD](https://www.youtube.com/watch?v=bvGIQ6lALvw)
