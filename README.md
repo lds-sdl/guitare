@@ -6,6 +6,7 @@
 ## Jimi Hendrix
 
 - [Hey Joe](https://www.youtube.com/watch?v=bxA3x8LeIX8)
+- [Chords progression](https://www.youtube.com/watch?v=EBml4Vbt0lg)
 
 ## Blues
 - [3 essential BLUES shuffles! | from EASY to HARD](https://www.youtube.com/watch?v=bvGIQ6lALvw)
