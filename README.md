@@ -10,6 +10,7 @@
 - [Chords progression](https://www.youtube.com/watch?v=EBml4Vbt0lg)
 - [Hendrix Chord Trick Lick lesson](https://www.youtube.com/watch?v=z9o-xUMrs3g)
 - [So Who Wants A Double Stop Guitar Lesson](https://www.youtube.com/watch?v=mQYnnPEJqkc)
+- https://www.youtube.com/watch?v=D00TvnCsGcw
 
 ## Blues
 - [3 essential BLUES shuffles! | from EASY to HARD](https://www.youtube.com/watch?v=bvGIQ6lALvw)
