@@ -25,7 +25,12 @@
 
 ### Pentatonic
 
+- Pentatonic mineure:
+
 ![Minor pentatonic](https://www.guitar-chords.org.uk/scales-images/minorpentatonicpositions.gif)
+
+- Pentatonic majeure :
+
 ![Major pentatonic](https://www.guitar-chords.org.uk/scales-images/majorpentatonicpositions.gif)
 
 - [Pentatonic scale in caged system](https://emeryguitarchops.wordpress.com/c-a-g-e-d-and-diagonal-pentatonic-scales/)
