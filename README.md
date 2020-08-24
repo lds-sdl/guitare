@@ -27,11 +27,11 @@
 
 - Pentatonic mineure:
 
-![Minor pentatonic](https://www.guitar-chords.org.uk/scales-images/minorpentatonicpositions.gif)
+![Minor pentatonic](https://beginnerguitarhq.com/wp-content/uploads/2019/08/Majorpent-1024x640.png)
 
 - Pentatonic majeure :
 
-![Major pentatonic](https://www.guitar-chords.org.uk/scales-images/majorpentatonicpositions.gif)
+![Major pentatonic](https://beginnerguitarhq.com/wp-content/uploads/2019/08/MinorPent-1024x640.png)
 
 - [Pentatonic scale in caged system](https://emeryguitarchops.wordpress.com/c-a-g-e-d-and-diagonal-pentatonic-scales/)
 - [pentatonic scales](https://www.guitarlessonworld.com/lessons/pentatonic-scales/)
